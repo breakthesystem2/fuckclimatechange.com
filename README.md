@@ -1,1 +1,0 @@
-# fuckclimatechange.com
